@@ -6,5 +6,5 @@
 
 
 ###### <p align="center"> paradise ephemeral, painted through sound
-###### <p align="center"> [🕊](https://donotfearoblivion.straw.page)
+###### <p align="center"> [🕊︎](https://donotfearoblivion.straw.page)
 
