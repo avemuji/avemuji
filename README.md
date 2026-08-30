@@ -6,4 +6,4 @@
 
 
 ###### <p align="center"> paradise ephemeral, drenched by name
-###### <p align="center"> [🕊︎](https://donotfearoblivion.straw.page)
+###### <p align="center"> [strawpage](https://donotfearoblivion.straw.page)
